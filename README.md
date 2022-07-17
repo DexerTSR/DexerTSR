@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DexerTSR
+- 👋 Hi, I go by the name Dexer
 - 👀 I’m interested in tech, art & vaporwave music
 - 🌱 I’m currently learning music production while re-learning to code 
 - 💞️ I’m looking to collaborate on some projects in the future
